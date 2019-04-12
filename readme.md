@@ -7,7 +7,17 @@ Project Name | Project Status | Special Comments
 ------------ | :------------: | ----------------
 Pooping Back-and-Fourth | STALLED | 
 
-## Dept. Head Goals
+### Collaberate on ongoing posting
+
+on the [posting board](
+https://github.com/bawdycaste/sinep/projects/1) you can share an idea or find somethingnto work on. 
+
+
+**ideas** stwrt n the left column and then I've they're selected by the editor (head of penis) they get moved into the pick list.
+
+
+
+## Dept. Head Goals 
 
 - one
 - two
