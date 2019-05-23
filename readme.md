@@ -5,7 +5,7 @@ Promotions, Engagement, Networking, Internet, and Social-Media
 
 Project Name | Project Status | Special Comments
 ------------ | :------------: | ----------------
-Pooping Back-and-Fourth | STALLED | 
+Pooping Back-and-Fourth | Getting back on track | 
 
 ### Collaberate on ongoing posting
 
